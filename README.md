@@ -1,1 +1,1 @@
-### -> [canine-jet.ru](https://canine-jet.ru) <-
+### [stylish-bear.github.io](https://stylish-bear.github.io)
